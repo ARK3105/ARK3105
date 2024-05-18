@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ARK3105
+- 👋 Hi, I’m Atharva Kulkarni
 - 👀 I’m interested in learning new things
 
 
